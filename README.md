@@ -1,1 +1,2 @@
 # Finanzas-y-el-cambio-digital
+La automatización está transformando el sector financiero: tareas repetitivas son asumidas por la tecnología, permitiendo a los profesionales enfocarse en lo estratégico. Ahora, la creatividad, el análisis de datos y la innovación humana cobran protagonismo. Adaptarse es clave para crecer en esta nueva era donde tecnología y talento colaboran para generar resultados más ágiles y efectivos.
